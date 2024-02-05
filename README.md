@@ -2,7 +2,7 @@
 - 👀 I’m interested in Networking & Cyber Security
 - 🌱 I’m currently learning Network Engineering
 - 💞️ I’m looking to collaborate on Networking & Cybersecurity ventures
-- 📫 How to reach me 0777437532 or weselynhende on facebook and LinkedIn
+- 📫 How to reach me 263777437532 or weselynhende on facebook and LinkedIn
 - 😄 Pronouns: Engineer
 - ⚡ Fun fact: Learning
 
